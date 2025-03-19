@@ -1,5 +1,5 @@
 # Dollar-Tree-Jobs---Career-Opportunities
-Welcome to the **Dollar Tree Jobs(https://offer.tcpfast.com/dollar-tree-jobs/)** repository! 🚀 If you're looking for job opportunities at Dollar Tree, this guide will help you explore available positions, application processes, and career growth opportunities.
+Welcome to the **[Dollar Tree Jobs](https://offer.tcpfast.com/dollar-tree-jobs/)** repository! 🚀 If you're looking for job opportunities at Dollar Tree, this guide will help you explore available positions, application processes, and career growth opportunities.
 
 **[👉👉CLICK HERE👈👈](https://offer.tcpfast.com/dollar-tree-jobs/)**
 
